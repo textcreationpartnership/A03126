@@ -36,11 +36,175 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Here begynneth a lytell cronycle translated [and] imprinted at the cost [and] charges of Rycharde Py
+THis preſent boke is dyuided in foure partes. The firſt parte ſpeketh of the lande of Aſie / the whi¶Here haue we deuyſed a table briffely cōteyning all the tytles of ye ſayd boke wherby ye may light
 #####Body#####
 
-#####Back#####
+1. The lande of Aſye.
+THe realm of Cathay is coūted and holden for ye mooſt noble and rich realm of yeworld This Realme m
+    _ ¶Of the realme of Tharſey.
 
+    _ ¶Of the lande of Turqueſtan.
+
+    _ ¶Of the realme of Coraſme.
+
+    _ ¶Of the realme of Comanye.
+
+    _ ¶Of the realme of Inde.
+
+    _ ¶Of the realme of Perſey.
+
+    _ ¶Of the realme of M•de.
+
+    _ ¶Of the realme of Armeny.
+
+    _ ¶Of the realme of Georgie.
+
+    _ ¶Of the realme of Caldee.
+
+    _ ¶The realme of Meſopotamy.
+
+    _ ¶The realme of Turky.
+
+    _ ¶The realme of Syrie.
+¶How the kynge of Perſy was fyrſt emperour of Aſye.AS ſaynt Luke ſayth in his goſpell the emperour o
+    _ ¶How the kynge of Perſy was fyrſt emperour of Aſye.
+
+    _ ¶Whan the ſaraſyns entred into Syri.
+
+    _ ¶How that the ſaraſyns entred into the realme of Meſopotamy.
+
+    _ ¶How the ſaraſyns choſe theyr ſowdan.
+
+    _ ¶A cuniuracyon amonge the ſaraſyns.
+
+    _ ¶The fyrſt reygnynge of the turkes in Aſye.
+
+    _ ¶How ye Grekes were dryuen out of Aſye.
+
+    _ ¶How the Cryſten men layde ſege to Antyoche
+
+    _ ¶How the Coraſmyns cōquered the realme of Perſy.
+¶What coūtray the Tartas inhabited fyrſte.THe lande & countrey there as the Tartas dwelled / fyrſt 
+    _ ¶What coūtray the Tartas inhabited fyrſte.
+
+    _ ¶How Cangius was elect emperour of the Tartas.
+
+    _ ¶How Cangius Can was ſaued by a byrde.
+
+    _ ¶How and wherfore the Tartas were fethers.
+
+    _ ¶How Cangius Can fell ſycke.
+
+    _ ¶How Cangius Can themperour dyed.
+
+    _ ¶How Hoctoca Can made war in Aſie.
+
+    _ ¶Whan the tartas lerned fyrſt letters.
+
+    _ ¶Of the batayle ye was betwene the ſowdan of Turky & ye tartas.
+
+    _ ¶How Iochy conquered the realme of Turqueſtan & Perſy.
+
+    _ ¶ How Bacho and a great parte of his men wer drowned in ye ryuer of Auſtrich.
+
+    _ ¶How Iochy receyued his broder Chacaday.
+
+    _ ¶How and whan the kynge of Armeny laft his owne countrey & came to the kynge of the Tartas. And how he required .vii. peticyons of hym.
+
+    _ ¶How themꝑour Mango Can and his barownes agreed to the vii. peticiōs of ye king of Armeni.
+
+    _ ¶How Māgo Can was chriſtened at the requeſt and deſyre of the kynge of Armeny / and dyuers other of his people. And how the kynge of Armeny and Halcon wente to the Aſſaſyns countreis.
+
+    _ ¶Why Halcon ſend for ye kynge of Armeny for to come to hym.
+
+    _ ¶How ye Halcon departed oute of the realme of Syrie.
+
+    _ ¶How Ginboga and the men of Saiectfyll at varyaunce.
+
+    _ ¶How ye ſowdā of Egipt droue the Tartas out of Syri.
+
+    _ ¶How Albaga wolde nat become chriſten which fortuned hym yll.
+
+    _ ¶How Albaga toke the traitour Pernana and put hym to deth.
+
+    _ ¶How Albaga ꝓfered ye realme of Turky to the king of Armeny.
+
+    _ ¶Of the batayle betwene Mangadamor and the ſowdan.
+
+    _ ¶How Albaga and his brother was poyſoned by theyr famulyer ſeruauntes.
+
+    _ ¶How the falſe Mahomet was ſlayne by his neniew Argon.
+
+    _ ¶How Kalgato was drowned by his owne people.
+
+    _ ¶How Caſan was deceyued by the traytour Chapchap.
+
+    _ ¶How the cytie of Hames was conquered.
+
+    _ ¶How they of Damas yelded them ſelfe to Caſan.
+
+    _ ¶Whan the kynge of Armeny & Catholaſa toke ye cyte of Hames.
+
+    _ ¶How the kynge of Armeny went to Caſan.
+
+    _ ¶How the ſowdan made trewſe with the kyng of Armeny.
+
+    _ ¶The auctour.
+
+    _ ¶Of the thre kynges that dyd honour to the great emperour.
+
+    _ ¶How they of Lices haue know lege by birdes whan any of theyr ennemys be cōmyng toward thē.
+
+    _ ¶The maner and gyſe yt the tartar vſe amonge them.
+
+    _ ¶The maner howe a kynge or a prince ſhlud order thē to warr.
+
+    _ ¶How the ſowdan ordereth his barownes and his knyghtes.
+
+    _ ¶Of the ſubtyltie of the ſowdan of Egypt to conquer cyties.
+
+    _ ¶Why they of Egypt yelded thē to the ſaraſyns.
+
+    _ ¶How the chriſtenmen were driuen out of Egypt.
+
+    _ ¶How Elſy was poyſoned.
+
+    _ ¶How Melcuaſer was made ſowdan of Egypt.
+
+    _ ¶How the lande of Egypt is watred with the water of flud Gyon.
+
+    _ ¶Whan tyme is to moue warr.
+
+    _ ¶Why thy go into ye holy lande.
+
+    _ ¶How the ennemis of the chriſtē fayth was myniſſhed & put down
+
+    _ ¶How Carbanda kyng of ye tartas profered hymſelfe and his power to go to the holy lande.
+¶Before your reuerence holi father I ſay and confeſſe that I am nat of ſufficyent ſcyence to gyue co¶Before your reuerence holi father I ſay and confeſſe that I am nat of ſufficyent ſcyence to gyue co
+    _ ¶Of the aduerſytes & proſperiteys of the ennemys.
+
+    _ ¶The names of the .ix. ſowdās that were ſlayne & poyſoned.
+
+    _ ¶Prouiſion agaynſt the ſowdan of Egypt.
+
+    _ ¶How imbaſſadours werſend to Carbanda a kynge of ye tartas that the ennemys ſhuld haue nothinge brought to them.
+
+    _ ¶How ye ſowdā of Egypt ſhuld be brought ſubget to the chriſtenmen and to the Tartas.
+yEt yf it ſhulde happen yt the ennemys were troubled by ſome aduerſite & that they coude nat departeyEt by this fyrſt paſſage might cōe .iii. other profettes. For ſyth yt the pylgryms of the firſt payEt your holyneſſe ſhall ꝑdon me I dare ſay two other wordꝭ. The one is that your holynes wold wryte
+    _ ¶Of the generall paſſage.
+
+#####Back#####
+¶Here begȳneth ye boke of al the ꝓuīces & cites of vniuerſal world which ſheweth the names of all IN ciuitate Romana ſūt quinqueecclie que patriarchales dicuntur et ſūt hee. Ecclia ſancti Iohānis
+    _ De ſultani dominiis.
+
+    _ Regiones chriſtianorum.
+
+    _ Potentiſſimi chriſtianorum.
+
+    _ De imperatore conſtanſtinopolitano.
+
+    _ Reges chriſtianorum.
+¶Here endeth a lytell cronicle tranſlated out of frenche into Engliſſhe at the coſt & charge of Rich
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
